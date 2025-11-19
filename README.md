@@ -1,2 +1,1 @@
-hi my user is cursed
-i play roblox
+who the fuck uses github
